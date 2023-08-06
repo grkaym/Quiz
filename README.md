@@ -1,0 +1,1 @@
+Quizzes are collected from http://www.chukai.ne.jp/~shintaku/hayaoshi/haya00.htm.
